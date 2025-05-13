@@ -121,6 +121,4 @@ With the exclusive **"VOVA" coupon code** giving you **40% off annual plans PLUS
 
 For maximum savings, grab the annual plan with the **VOVA coupon code**. You'll get all the powerful features that top Amazon sellers use daily, but at nearly half the regular price **PLUS** two months free. Remember, unlike other limited-time offers, **VOVA is a lifetime promotion** - but still best to lock in your savings today!
 
-[![Viral Launch Discount Coupon 3](https://res.cloudinary.com/drzqec0oi/image/upload/v1747121645/Viral_Launch_Discount_Coupon_3_onq9vo.jpg)](https://affiliate.viral-launch.com/muc5szg4gr6b)
-
 [![Click here to get started with Viral Launch using the VOVA discount](https://res.cloudinary.com/drzqec0oi/image/upload/v1747122687/Click_here_to_get_started_with_Viral_Launch_using_the_VOVA_discount_cqqwwb.png)](https://affiliate.viral-launch.com/muc5szg4gr6b)  
