@@ -122,4 +122,4 @@ With the exclusive **"AFFINCO" coupon code** giving you **40% off annual plans P
 
 For maximum savings, grab the annual plan with the **AFFINCO coupon code**. You'll get all the powerful features that top Amazon sellers use daily, but at nearly half the regular price **PLUS** two months free. Remember, unlike other limited-time offers, **AFFINCO is a lifetime promotion** - but still best to lock in your savings today!
 
-[![Click here to get started with Viral Launch using the VOVA discount](https://res.cloudinary.com/drzqec0oi/image/upload/v1747122687/Click_here_to_get_started_with_Viral_Launch_using_the_VOVA_discount_cqqwwb.png)](https://affiliate.viral-launch.com/muc5szg4gr6b)  
+[![Use Code AFFINCO to Get Your Viral Lunch Discount](https://res.cloudinary.com/drzqec0oi/image/upload/v1747291815/Use_Code_AFFINCO_to_Get_Your_Viral_Lunch_Discount_eyxnwd.png)](https://affiliate.viral-launch.com/AFFINCO)
