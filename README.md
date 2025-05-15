@@ -1,4 +1,4 @@
-# Viral Launch Coupon Code 2025: Save Up to 40% Off with AFFINCO Discount
+# Viral Launch Coupon Code 2025: Save Up to 40% Off with AFFINCO Discount Code
 
 [![Viral Launch Discount Coupon 1](https://res.cloudinary.com/drzqec0oi/image/upload/v1747121646/Viral_Launch_Discount_Coupon_1_gy3f4d.jpg)](https://affiliate.viral-launch.com/AFFINCO)
 
