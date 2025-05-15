@@ -32,7 +32,7 @@ Got your code ready? Here's how to claim your discount in 4 simple steps:
 
 If the discount doesn't apply automatically, simply check for a "Coupon Code" field at checkout and enter **AFFINCO**.
 
-[![Viral Launch Discount Coupon 6](https://res.cloudinary.com/drzqec0oi/image/upload/v1747122104/Viral_Launch_Discount_Coupon_6_uqhcsn.jpg)](https://affiliate.viral-launch.com/muc5szg4gr6b)
+[![Viral Launch Discount Coupon (Affinco)](https://res.cloudinary.com/drzqec0oi/image/upload/v1747291358/Viral_Launch_Discount_Coupon_Affinco_mpw122.png)](https://affiliate.viral-launch.com/AFFINCO)
 
 ## Viral Launch Pricing: Before & After AFFINCO Discount
 
