@@ -84,10 +84,10 @@ Viral Launch isn't just another Amazon tool - it's a complete ecosystem that pow
 Each Viral Launch plan targets different seller needs:
 
 ### Essentials Plan ($69/mo or $56/mo annually):
-Perfect for beginners or sellers focused on product research. Includes Market Intelligence, Product Discovery, and basic tracking tools. With the **VOVA coupon** on annual billing, you'll pay just **$33.60/month PLUS get two months free**.
+Perfect for beginners or sellers focused on product research. Includes Market Intelligence, Product Discovery, and basic tracking tools. With the **[AFFINCO coupon](https://affiliate.viral-launch.com/AFFINCO)** on annual billing, you'll pay just **$33.60/month PLUS get two months free**.
 
 ### Pro Plan ($99/mo or $83/mo annually):
-The most popular option for established sellers. Adds Keyword Manager, Listing Builder, and Listing Analyzer to the Essentials features. With the **VOVA coupon** on annual billing, you'll pay only **$49.80/month PLUS get two months free**.
+The most popular option for established sellers. Adds Keyword Manager, Listing Builder, and Listing Analyzer to the Essentials features. With the **[AFFINCO coupon](https://affiliate.viral-launch.com/AFFINCO)** on annual billing, you'll pay only **$49.80/month PLUS get two months free**.
 
 ### Pro Plus Ads Plan ($199/mo or $166/mo annually):
 The ultimate package for sellers ready to dominate with PPC. Includes everything in Pro plus complete advertising tools for campaign management and optimization. With the **[AFFINCO coupon](https://affiliate.viral-launch.com/AFFINCO)** on annual billing, you'll pay just **$99.60/month PLUS get two months free**.
