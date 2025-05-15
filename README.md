@@ -127,7 +127,7 @@ Yes! You can upgrade your plan anytime. Contact their support team to see if you
 
 As any serious Amazon seller knows, the right tools can make or break your business. Viral Launch has proven its worth for over 300,000 sellers, driving more than **$34 billion in Amazon sales**.
 
-With the exclusive **"AFFINCO" coupon code** giving you **40% off annual plans PLUS two months free**, you're looking at savings of up to **$795 per year** plus free months. That's not just pocket change - it's significant capital you can reinvest in your business.
+With the exclusive **"AFFINCO" coupon code** giving you **[40% off annual plans PLUS two months free](https://affiliate.viral-launch.com/AFFINCO)**, you're looking at savings of up to **$795 per year** plus free months. That's not just pocket change - it's significant capital you can reinvest in your business.
 
 For maximum savings, grab the annual plan with the **AFFINCO coupon code**. You'll get all the powerful features that top Amazon sellers use daily, but at nearly half the regular price **PLUS** two months free. Remember, unlike other limited-time offers, **AFFINCO is a lifetime promotion** - but still best to lock in your savings today!
 
