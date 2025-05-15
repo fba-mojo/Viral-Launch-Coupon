@@ -14,8 +14,8 @@ Let's jump straight into the active Viral Launch coupon codes available right no
 
 | Coupon Code     | Discount                          | Validity              | Where to Use          |
 |------------------|------------------------------------|------------------------|------------------------|
-|**AFFINCO**          | **40% OFF + 2 FREE MONTHS**        | **Discount Coupon**     | **All plans**       |
-| VL_2025           | 40% OFF                           | Limited time offer     | Annual plans only      |
+|**[AFFINCO](https://affiliate.viral-launch.com/AFFINCO)**          | **40% OFF + 2 FREE MONTHS**        | **Discount Coupon**     | **All plans**       |
+| [VL_2025](https://affiliate.viral-launch.com/AFFINCO)           | 40% OFF                           | Limited time offer     | Annual plans only      |
 |VOVA          | 40% OFF        | Lifetime promo     | Annual plans       |
 | CONQUERAMAZON     | 20% OFF                           | Valid until June 30, 2025 | All plans (monthly & annual) |
 | INTERSTELLAR      | 20% OFF                           | Limited time           | All plans              |
